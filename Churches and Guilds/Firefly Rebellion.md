@@ -98,3 +98,39 @@ This makes the faction:
 - Steal records from Valecourt or Giltmere
 - Expose hidden laws, debts, and disappearances
 
+### **Smuggling**
+
+- Move people, goods, and messages through hidden tunnels
+- Often coordinate with **Rookhaven couriers**
+
+### **Relief Work**
+
+- Provide medicine, food, and shelter
+- Protect vulnerable communities
+
+## **Methods (Important Tone)**
+
+The Fireflies avoid unnecessary harm.
+
+But they are not harmless.
+
+They will:
+
+- sabotage infrastructure
+- manipulate systems
+- endanger powerful targets
+
+And when pushed—
+
+They are willing to escalate.
+
+## **Notable Figures**
+
+### **Commander Ilyra Venn**
+
+- Calm, precise, rarely seen
+- Former strategist (possibly from Grimwick or Valecourt)
+- Believes in controlled rebellion—not chaos
+
+> _“We are not here to burn the world. We are here to prove it was already burning.”_
+
