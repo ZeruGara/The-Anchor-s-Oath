@@ -10,3 +10,4 @@ He was later discovered unconscious in the streets of Aureveil after being struc
 ![[Noble Crest - Crimson.png]]
 _The Crest of Crimson Family_
 
+#PC

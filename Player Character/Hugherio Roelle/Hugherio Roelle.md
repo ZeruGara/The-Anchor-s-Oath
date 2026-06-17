@@ -28,3 +28,5 @@ Background: Wayfarer
 Likes: Reading, Painting, Writing, Teaching, Stealing, Looting 
 Dislikes: Sinners, Rich abusive people 
 Additional info: -Single and never mingles. -was bald but grew long hair because of guilt. -favorite color is black.
+
+#PC 
