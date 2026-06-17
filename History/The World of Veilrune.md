@@ -120,5 +120,17 @@ And where there are gaps—
 
 Something always rises to fill them.
 
----
+## **II. The Rise of the Minor Cities**
 
+The Minor Cities were not founded by grand design.
+
+They emerged from:
+
+- overflow
+- neglect
+- ambition
+- or necessity
+
+Each one grew in the shadow of a Major City… then became something indispensable.
+
+1. Cindergate
