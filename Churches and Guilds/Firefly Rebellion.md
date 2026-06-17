@@ -196,4 +196,6 @@ Players may have to choose sides _within_ the rebellion.
 > _“We are not the fire._  
 > _We are what survives after the fire is ignored.”_
 
+Player who's inside: [[Barnabas Crimson]]
+
 #Churches-and-Guilds 
