@@ -9,11 +9,11 @@ I hate this side of master... Why did he just kick me away? Is it because i stol
 
 " _The diary is filled with blank pages after the last one, then comes one, dried with blood and tear marks_ " 
 
-A fool, he used to call me that alot. He ordered me to go away not for the reason I thought. It has been few days since I last saw them... I chose to come back for my day of birth, to see if they'd forgiven me... Only to learn that my people paid for my sins... Lord..." 
+A fool, he used to call me that alot. He ordered me to go away not for the reason I thought. It has been few days since I last saw them... I chose to come back for my day of birth, to see if they'd forgiven me... Only to learn that my people paid for my sins... Lord...
 
-_The texts are blurred from the dried tears and are unreadable_ 
+"_The texts are blurred from the dried tears and are unreadable_"
 
-"07/20, -Cleaned the temple completely. -Burried their bodies. -Grew plants all over. -Cleaned the stains. -Buried and hid all the temple treassures. -Prayed for the whole 5 days without eating or sleeping. -Repented. I will now set on a journey. Master left me a note, "Find your way in life." it said. Without them, I dont know what "way" I have, nor what "life" I'll live from now on. But I know that the lord is watching me. This is my last entry in this place. Starting from now on...
+07/20, -Cleaned the temple completely. -Burried their bodies. -Grew plants all over. -Cleaned the stains. -Buried and hid all the temple treassures. -Prayed for the whole 5 days without eating or sleeping. -Repented. I will now set on a journey. Master left me a note, "Find your way in life." it said. Without them, I dont know what "way" I have, nor what "life" I'll live from now on. But I know that the lord is watching me. This is my last entry in this place. Starting from now on...
 
 
 " _The paper is ripped-_ 
@@ -22,7 +22,7 @@ _The texts are blurred from the dried tears and are unreadable_
 Character Profile: Name: Hugherio Roelle Nickname: Hugh 
 Age: 23 
 Birth: 07/11 
-Race:Vuman 
+Race: Vuman 
 Alignment: Neutral Good 
 Background: Wayfarer 
 Likes: Reading, Painting, Writing, Teaching, Stealing, Looting 
