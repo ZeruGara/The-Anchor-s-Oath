@@ -177,3 +177,22 @@ A **small flame with wings**—often drawn in chalk, ink, or carved into metal.
 - Officially: _nonexistent_
 - Unofficially: _a growing concern_
 
+### **Moral Conflict**
+
+- Some Fireflies want peace
+- Others want destruction
+
+Players may have to choose sides _within_ the rebellion.
+
+### **Story Hooks**
+
+- A Firefly cell goes silent
+- A mission risks harming civilians
+- Valecourt starts erasing Firefly members from existence
+- A traitor is feeding information to upper cities
+
+## **Final Line**
+
+> _“We are not the fire._  
+> _We are what survives after the fire is ignored.”_
+
