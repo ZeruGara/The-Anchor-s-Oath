@@ -134,3 +134,29 @@ They are willing to escalate.
 
 > _“We are not here to burn the world. We are here to prove it was already burning.”_
 
+### **Lysa (Valecourt Contact)**
+
+- Embedded in bureaucracy
+- Feeds the Fireflies information
+- Specializes in altering records and legal gaps
+
+### **“Cinder” Ral**
+
+- Cindergate defector
+- Expert in explosives and machinery
+- Pushes for more aggressive action
+
+### **Mother Sable**
+
+- Runs underground clinics
+- Protects civilians above all else
+- Opposes violent escalation
+
+## **Symbol**
+
+A **small flame with wings**—often drawn in chalk, ink, or carved into metal.
+
+- Appears in hidden places
+- Marks safe routes
+- Signals recent activity
+
