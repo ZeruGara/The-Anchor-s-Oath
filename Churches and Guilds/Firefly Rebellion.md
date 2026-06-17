@@ -1,6 +1,6 @@
 “Small lights. Endless dark.”
 
-The **Firefly Rebellion** is a decentralized resistance movement born in the depths of **Blackbarrow**.
+The **Firefly Rebellion** is a decentralized resistance movement born in the depths of **[[Blackbarrow (Five of Pentacles)]]**.
 
 They are not an army.
 
