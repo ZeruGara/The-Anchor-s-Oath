@@ -99,5 +99,26 @@ But all agree on one thing:
 
 # **Veilrune – The Six Minor Cities**
 
-## **“The great cities define the world. The smaller ones make it move.”**
+### **“The great cities define the world. The smaller ones make it move.”**
+
+## **I. The Age After the Accord**
+
+After the **Accord of Six**, the world stabilized—for a time.
+
+Trade routes opened. Knowledge spread. Systems formed.
+
+But the Major Cities, for all their power, had limits:
+
+- Aureveil could not supply every machine
+- Valecourt could not process every transaction
+- Threnovar could not manage every death
+- Nocthollow could not contain every secret
+
+Gaps formed.
+
+And where there are gaps—
+
+Something always rises to fill them.
+
+---
 
