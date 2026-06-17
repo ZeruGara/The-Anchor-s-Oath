@@ -134,3 +134,6 @@ They emerged from:
 Each one grew in the shadow of a Major City… then became something indispensable.
 
 1. Cindergate
+2. Silvershade
+3. Grimwick
+4. Giltme
