@@ -133,8 +133,10 @@ They emerged from:
 
 Each one grew in the shadow of a Major City… then became something indispensable.
 
-1. Cind
-
+### 1. Cindergate (Wands)
+### 2. Silvershade (Cups)
+### 3. Grimwick (Swords)
+### 3. Grimwick (Swords)
 ---
 
 ## **III. Their Role in the Balance**
