@@ -1,3 +1,5 @@
+[[The Anchor's Guild]]
+
 _An old diary entry_ 
 
 " I did it... But I feel like i forgot something, something important. But atleast I got it! It must've been the lords' plan that I was able to get these riches. Oh I hope master will be happy! Once I come back, we will be able to fix the temple as well as proceed to the feeding festival we were planning for the children! 
