@@ -133,9 +133,9 @@ They emerged from:
 
 Each one grew in the shadow of a Major City… then became something indispensable.
 
-### 1. Cindergate (Wands)
-### 2. Silvershade (Cups)
-### 3. Grimwick (Swords)
+### 1. [[Cindergate (Wands)]]
+### 2. [[Silvershade (Cups)]]
+### 3[[]]. Grimwick (Swords)
 ### 4. Giltmere (Pentacles)
 ### 5. Blackbarrow (Five of Pentacles)
 ### 6. Rookhaven (Knight of Swords)
