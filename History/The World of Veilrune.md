@@ -178,3 +178,7 @@ Individually, these are anomalies.
 Together—
 
 They suggest something deeper.
+
+> _“The great cities hold the world together._  
+> _The smaller ones feel when it starts to break.”_
+
