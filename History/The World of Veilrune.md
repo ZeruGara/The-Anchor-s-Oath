@@ -159,3 +159,170 @@ Now, Cindergate is known for:
 > If Aureveil is control, Cindergate is **defiance**.
 
 
+### **Silvershade (Cups)**
+
+**“Some things are felt long after they are gone.”**
+
+Silvershade formed along a trade river between cities, but it never became a hub of commerce.
+
+Instead, it became a place people **passed through… and stayed in**.
+
+Artists, lovers, and exiles gathered there.
+
+Over time, the city developed a reputation for:
+
+- opera and music
+- poetry and memory
+- stories that refuse to end
+
+Some say emotions linger here longer than they should.
+
+Old relationships don’t fade easily.
+
+Grief doesn’t fully leave.
+
+> Silvershade is not important for what it produces—  
+> but for what it **preserves**.
+
+### **rimwick (Swords)**
+
+**“Precision is not cruelty. It is necessity.”**
+
+Grimwick rose from the need for **defense and discipline**.
+
+As tensions between cities grew, so did the demand for:
+
+- trained officers
+- strategists
+- intelligence operatives
+
+Grimwick answered.
+
+It became home to:
+
+- elite academies
+- dueling traditions
+- covert networks
+
+Many of Valecourt’s enforcers and Aureveil’s commanders trained here.
+
+But Grimwick serves no one fully.
+
+It values:
+
+- clarity
+- efficiency
+- victory
+
+> In Grimwick, hesitation is failure—and failure is not tolerated.
+
+### **Giltmere (Pentacles)**
+
+**“If it can be owned, it can be controlled.”**
+
+Giltmere began as a financial outpost supporting trade between cities.
+
+But wealth accumulates.
+
+And those who manage it… learn quickly.
+
+Giltmere evolved into:
+
+- the banking heart of Veilrune
+- a center of merchant guilds
+- a city where contracts rival those of Valecourt
+
+Here, money is not just currency—it is **influence**.
+
+Some whisper that:
+
+- debts in Giltmere matter more than laws in Valecourt
+- and fortunes can reshape entire cities
+
+> In Giltmere, everything has a price.  
+> The danger is discovering yours.
+
+### **Blackbarrow (Five of Pentacles)**
+
+**“What is cast aside does not disappear.”**
+
+Blackbarrow was never meant to exist.
+
+It formed beneath abandoned estates and forgotten infrastructure—mostly tied to **Aureveil and Giltmere’s expansion**.
+
+Workers left behind. Systems discarded. People unaccounted for.
+
+They gathered underground.
+
+And survived.
+
+Now, Blackbarrow is:
+
+- overcrowded
+- disease-ridden
+- fiercely alive
+
+It runs on:
+
+- scavenged industry
+- black markets
+- quiet rebellion
+
+Movements like the **Fireflies** often find their roots here.
+
+> The upper cities pretend Blackbarrow is a problem.  
+> Blackbarrow knows it is a **consequence**.
+
+### **Rookhaven (Knight of Swords)**
+
+**“Speed decides who survives.”**
+
+Rookhaven grew where all major trade routes intersected.
+
+At first, it was a simple relay point.
+
+Then came:
+
+- rail systems
+- courier towers
+- message networks
+
+Now, it is the **fastest city in Veilrune**.
+
+Information, goods, and people move through it constantly.
+
+It is known for:
+
+- rapid communication
+- spies and informants
+- people who never stay in one place for long
+
+If something happens anywhere in Veilrune—
+
+Rookhaven knows first.
+
+> And sometimes… it decides who else gets to know.
+
+---
+
+## **III. Their Role in the Balance**
+
+The Minor Cities do not rival the Majors.
+
+They **support, disrupt, and connect** them.
+
+- Cindergate fuels industry and rebellion
+- Silvershade preserves memory and emotion
+- Grimwick sharpens war and strategy
+- Giltmere controls wealth
+- Blackbarrow reveals the cost of progress
+- Rookhaven moves everything between them
+
+If the Major Cities are pillars—
+
+The Minor Cities are the **currents beneath them**.
+
+Unseen.
+
+But essential.
+
