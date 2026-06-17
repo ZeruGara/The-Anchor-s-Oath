@@ -93,3 +93,11 @@ No one agrees on what is happening.
 But all agree on one thing:
 
 > The Veil is no longer as stable as it once was.
+
+
+---
+
+# **Veilrune – The Six Minor Cities**
+
+## **“The great cities define the world. The smaller ones make it move.”**
+
