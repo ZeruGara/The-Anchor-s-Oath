@@ -160,3 +160,20 @@ A **small flame with wings**—often drawn in chalk, ink, or carved into metal.
 - Marks safe routes
 - Signals recent activity
 
+## **Reputation**
+
+### In Blackbarrow:
+
+- Seen as protectors
+- Or reckless troublemakers
+
+### In Major Cities:
+
+- Classified as **insurgents**
+- Blamed for disruptions and leaks
+
+### In Valecourt:
+
+- Officially: _nonexistent_
+- Unofficially: _a growing concern_
+
