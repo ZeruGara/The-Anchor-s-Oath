@@ -16,7 +16,7 @@ A fool, he used to call me that alot. He ordered me to go away not for the reaso
 07/20, -Cleaned the temple completely. -Burried their bodies. -Grew plants all over. -Cleaned the stains. -Buried and hid all the temple treassures. -Prayed for the whole 5 days without eating or sleeping. -Repented. I will now set on a journey. Master left me a note, "Find your way in life." it said. Without them, I dont know what "way" I have, nor what "life" I'll live from now on. But I know that the lord is watching me. This is my last entry in this place. Starting from now on...
 
 
-" _The paper is ripped-_ 
+" _The paper is ripped-_ "
 
 
 Character Profile: Name: Hugherio Roelle Nickname: Hugh 
