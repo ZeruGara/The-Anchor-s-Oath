@@ -62,7 +62,7 @@ They fight in ways that:
 
 The Fireflies are intentionally fragmented.
 
-###  **Cells (“Lanterns”)**
+### **Cells (“Lanterns”)**
 
 - Small groups (3–10 members)
 - Operate independently
@@ -79,3 +79,22 @@ The Fireflies are intentionally fragmented.
 - Not a person—but a concept
 - Refers to the **shared mission**
 - Orders are passed as suggestions, not commands
+
+This makes the faction:
+
+- Hard to destroy
+- Hard to control
+- Sometimes chaotic
+
+## **Operations**
+
+### **Sabotage**
+
+- Disrupt supply lines to upper cities
+- Break machinery that exploits Blackbarrow labor
+
+### **Information Leaks**
+
+- Steal records from Valecourt or Giltmere
+- Expose hidden laws, debts, and disappearances
+
