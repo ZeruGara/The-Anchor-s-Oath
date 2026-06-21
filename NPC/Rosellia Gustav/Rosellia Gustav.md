@@ -128,7 +128,7 @@ Only fragments of records remain:
 
 Even now:
 
-- The Anchor Guild echoes her ideology
+- The [[The Anchor's Guild]] echoes her ideology
 - Noble systems mirror her structure
 - Arcana regulation traces back to her laws
 
