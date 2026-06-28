@@ -12,3 +12,5 @@ Beneath the grime, sarcasm, and bad attitude is someone terrified of being chain
 The streets taught him that attachments become weaknesses. Still… somewhere deep inside, Bmud hopes that finding his stolen instrument might also help him recover the piece of himself he lost with it. the instrument he lost.
 
 ![[Pasted image 20260628125442.png]]
+
+#PC 
