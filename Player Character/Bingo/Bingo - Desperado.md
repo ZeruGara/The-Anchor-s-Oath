@@ -1,3 +1,7 @@
+![[Pasted image 20260628122757.png]]
+_[[The Anchor's Guild]]_
+
+
 Mordain Blackshot was left alone on a drifting boat as a child, placed there by parents he never knew for reasons he never understood. The sea should have taken him but it didn’t. He was found by a feared pirate crew led by Captain Brutus, a ruthless man to the world, but a protector of lost children. Brutus took him in, and Mordain was raised aboard the ship as part of the crew. The ship became his entire life. The crew raised him like family: 
 
 Brutus — captain and father figure 
