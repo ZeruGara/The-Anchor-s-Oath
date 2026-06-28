@@ -1,4 +1,4 @@
-[[Barnabas Crimson]] and [[Tessia Von Regalia]] 
+[[Barnabas Crimson - Blood Mage]] and [[Tessia Von Regalia]] 
 
 The two met outside of The Rose & Thistle Apothecary, uncanny situations but they made a connection. Then Tessia had a problem, he offers help, as a doctor and playboy he can't endure the frown of the young maiden. 
 
