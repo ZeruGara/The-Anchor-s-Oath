@@ -1,3 +1,6 @@
+[]()
+
+
 Framboise’s life tells a tale of two cities and a world in between. she once lived in Nocthollow, the city of mirrored alleys and forbidden laboratories. it was there she stepped through a shimmering canal and vanished into the Feywild. when she emerged, she found herself outside Aureveil, the radiant industrial capital. 
 
 changed by her travels, she realized she could no longer blend into society. she traded with the shadows for a life on the literal edge of the city, setting up a canvas tent just outside its walls. 
