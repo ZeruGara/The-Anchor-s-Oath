@@ -1,5 +1,5 @@
-[]()
-
+![[d625e15166ccb19a658a2cc232910191.webp.jpg]]
+_[[The Anchor's Guild]]_
 
 Framboise’s life tells a tale of two cities and a world in between. she once lived in Nocthollow, the city of mirrored alleys and forbidden laboratories. it was there she stepped through a shimmering canal and vanished into the Feywild. when she emerged, she found herself outside Aureveil, the radiant industrial capital. 
 
