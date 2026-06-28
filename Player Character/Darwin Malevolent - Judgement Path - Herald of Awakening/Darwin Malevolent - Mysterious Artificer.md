@@ -1,5 +1,5 @@
 ![[Pasted image 20260628140249.png]]
-__
+_[[The Anchor's Guild]]_
 
 Seventeen years ago, Darwin Malevolent lived as a noble heir to a quiet but influential house—one tied to one of the most dangerous secrets in the realm. His family were not human. They were metal dragons, ancient beings who had long since abandoned open dominion in favor of concealment. 
 
@@ -19,3 +19,4 @@ But beneath the surface, everything he does serves a single, long-term objective
 
 An invention. A system. An inevitability that will one day reach the throne that destroyed his bloodline and return everything in the only language he respects: controlled, irreversible consequence. And when that moment comes, it will not be rage that drives him forward. It will be completion.
 
+#PC 
