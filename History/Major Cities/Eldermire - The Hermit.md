@@ -16,6 +16,6 @@ Where others act—
 
 Eldermire **watches**.
 
-It's close to 
+It's close to [[Cindergate (Wands)]] and [[Nocthollow – The Moon]]
 
 #History

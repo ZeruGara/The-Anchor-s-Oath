@@ -22,4 +22,6 @@ But with control came expectation.
 
 Perfection was no longer a goal it was a requirement.
 
+It's close to [[Blackbarrow (Five of Pentacles)]] and [[Eldermire - The Hermit]]
+
 #History
