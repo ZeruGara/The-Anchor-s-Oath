@@ -364,5 +364,5 @@ You don’t overpower Tessia.
 
 ### Player Affinity
 
-[[Barnabas Crimson - Blood Mage]] - It seems like Crimson took a liking to Tessia, 
+[[Barnabas Crimson - Blood Mage]] - It seems like Crimson took a liking to Tessia, he helped her to lift up the curse 
 #Character 
