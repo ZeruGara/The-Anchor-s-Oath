@@ -363,4 +363,6 @@ You don’t overpower Tessia.
 > “Struggling only hastens what is already growing.”
 
 ### Player Affinity
+
+[[Barnabas Crimson - Blood Mage]] - It seems like Crimson took a liking to Tessia, 
 #Character 
