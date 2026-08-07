@@ -22,4 +22,6 @@ It does not rule by force—
 
 But by making resistance **impossible to justify**.
 
+It's close to [[Grimwick (Swords)]] and [[Threnovar - Death]]
+
 #History

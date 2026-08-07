@@ -20,4 +20,6 @@ Threnovar turned mortality into a system.
 
 And systems… bring power.
 
+It's close to [[Giltmere (Pentacles)]] and [[Aureveil – The Sun]]
+
 #History
