@@ -20,6 +20,6 @@ Now, Vesperfall is a city of:
 
 They believe understanding failure is the only path to progress.
 
-It's close to 
+It's close to [[Silvershade (Cups)]] and [[Valecourt - Justice]]
 
 #History
