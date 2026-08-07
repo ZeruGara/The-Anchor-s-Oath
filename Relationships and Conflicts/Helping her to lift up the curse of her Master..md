@@ -1,0 +1,3 @@
+[[Barnabas Crimson - Blood Mage]] - It seems like Crimson took a liking to [[Tessia Von Regalia]], he helped her to lift up the curse of [[Lucille Brightheart]] family, he discovered that the curse is a manifestation of the wraith and suffering of the people of [[Eldermire - The Hermit]]. it seems that the Noble family of brightheart has a dark side. Crimson see a man that controlling Lucille's mind, he lift lift up the curse by dealing with the manifestation to inhabit his eyes. It seems the dark figure likes to know what he is as it see that he had a connection to [[Rosellia Gustav]].
+
+#Conflict-and-Relationship 
