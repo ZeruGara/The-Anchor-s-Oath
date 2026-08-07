@@ -24,4 +24,6 @@ It thrives not by controlling reality—
 
 But by **accepting its uncertainty**.
 
+It's close to [[Rookhaven (Knight of Swords)]] and [[Eldermire - The Hermit]]
+
 #History
